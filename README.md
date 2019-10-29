@@ -3,6 +3,6 @@ If you encounter any problems while using our products, please feel free to cont
 
 Please contact us by email and we will be at your service 24 hours a day!
 
-Email address: ziqiao4292794@163.com
+Email address: huanreng1714@163.com
 
 Thank you!
